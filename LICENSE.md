@@ -1,4 +1,4 @@
-# 
+# Código abierto trend-following bot extensiones para Mac OS | Gratuito trend-following bot extensiones para PC Windows. Con indexación de blockchain y análisis de libro de órdenes — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
